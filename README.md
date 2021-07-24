@@ -12,3 +12,12 @@
 
 
 ![image](https://user-images.githubusercontent.com/73736082/125483051-4d124b82-3890-4973-9564-6737a38161da.png)
+
+
+
+![image](https://user-images.githubusercontent.com/73736082/126872502-6503623f-613a-44f2-848e-69e3a99345a3.png)
+
+
+
+![image](https://user-images.githubusercontent.com/73736082/126872518-33b4b2c7-e5c4-4022-aab1-a05e51746f05.png)
+
