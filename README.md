@@ -23,6 +23,16 @@
 
 
 
-![image](https://user-images.githubusercontent.com/73736082/126952431-6979aaba-cb3a-4f8a-931b-5157615d1715.png)
+![image](https://user-images.githubusercontent.com/73736082/126954083-f62443f2-901b-410f-b493-49dad20d6896.png)
+
+
+
+![image](https://user-images.githubusercontent.com/73736082/126954122-16d0eca3-4a54-4c8f-8446-333dbd9b7d7d.png)
+
+
+
+![image](https://user-images.githubusercontent.com/73736082/126954195-32ee8f66-eb8b-4688-8fb4-53f4593f0ae6.png)
+
+
 
 
