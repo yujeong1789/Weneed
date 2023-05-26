@@ -4,6 +4,10 @@
 </div>
 
 - 개발기간: 2022.01 ~ 2022.02
+- 개발인원: 이현빈 유가은 이자연 박주미 허지원 박유정
+
+<br>
+
 > 🔗 [위니드 자세히 보기 (pdf)](https://drive.google.com/file/d/1RWURNOGjn4aAlbdRMDdy6B5zpZb-6aWo/view)
 <br>
 
